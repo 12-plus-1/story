@@ -1,2 +1,2 @@
-it was the best time, it was the worst time.
+It is the best communist utopia in human being's history.
 

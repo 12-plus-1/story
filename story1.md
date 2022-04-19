@@ -1,1 +1,1 @@
-This is a story happened at a beautiful garden.
+This is a story happened on the ruins of war.
