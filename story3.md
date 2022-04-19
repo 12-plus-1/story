@@ -1,0 +1,1 @@
+After getting up, Winston opens his radio to hear the speech from Big Brother.
